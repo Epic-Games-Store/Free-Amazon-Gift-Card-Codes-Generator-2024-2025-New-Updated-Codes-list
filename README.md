@@ -4,9 +4,9 @@
 
 Links 1:
 
-**[✅👉🎁🎁CLICK HERE TO GET FREE NOW✔️🎁✅](https://cutt.ly/AeJyGG7F)**
+**[✅👉🎁🎁CLICK HERE TO GET FREE AMAZON GIFT CARD ✔️🎁✅](https://tinyurl.com/53rzc6k4)**
 
-**[✅👉🎁🎁CLICK HERE TO GET FREE NOW✔️🎁✅](https://cutt.ly/AeJyGG7F)**
+**[✅👉🎁🎁CLICK HERE TO GET FREE AMAZON GIFT CARD ✔️🎁✅](https://tinyurl.com/53rzc6k4)**
 
 Understanding Amazon Gift Cards Definition
 
